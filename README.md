@@ -1,0 +1,34 @@
+# The Tech Thieves – Fake
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Oh, oh, oh, oh
+Oh, oh, oh, oh
+Oh, oh, oh, oh
+Oh, oh, oh, oh
+(oh, oh)
+Please don't fake it,
+show me what you're all about
+I got wasted,
+learning how to let it out
+I can't take it,
+kiss me with the lips of doubt
+Please don't fake it,
+Fake it, fake
+Fake
+Please don't fake it,
+show me what you're all about
+I got wasted,
+learning how to let it out
+I can't take it,
+kiss me with the lips of doubt
+Please don't fake it,
+Fake it, fake
+Fake
+Oh, oh, oh, oh
+Oh, oh, oh, oh
+Oh, oh, oh, oh
+Please don't fake it,
+Fake it, fake
+```
